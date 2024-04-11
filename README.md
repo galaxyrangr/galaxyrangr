@@ -1,5 +1,4 @@
-![!](https://files.catbox.moe/mx1u2v.webp)  
-i like to play and have fun  
-[bundlrs](https://bundlrs.cc/cyborgcowboy) [prns](https://pronouns.cc/@boothill)  
-idk how 2 use this girl help  
-if u take the kai fern thing seriously you are reallydumb i think  
+![!](https://cdn.discordapp.com/emojis/1112597905593880669.webp?size=96&quality=lossless)   
+i like to play and have fun ![!](https://xyz.crd.co/assets/images/gallery11/007c8a23.png?v=6ecccb1c)  
+[bundlrs](https://bundlrs.cc/argenthill) [prns](https://pronouns.cc/@boothill)  
+almost always w2i, usually in genshin/hsr area or @ spawn  
